@@ -30,33 +30,40 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
 <p><details>
   <summary>⚀ <b>ꜱʜᴏʀᴛᴇɴᴇᴅ ᴅɴɪ</b></summary>
   
-- Basic - https://dont-interact-criteria.carrd.co/
-- No flirting unless I allowed you to; no flirting if you're over 18 in any case.
-- Boy/Femboy/Crossdresser Mizuki (PJSK) believers.
-- Here *only* for drama and venting/complaining. Like, I don't mind sometimes, but it is weird if that's *only* thing you do.
-- Block freely if I disagree with your views or may ignore you completely.
+- ${\color{#5a9f67}\text{Basic}}$ - https://dont-interact-criteria.carrd.co/
+- ${\color{#5a9f67}\text{No flirting unless I allowed you to; no flirting if you're over 18 in any case.}}$
+- ${\color{#63a78d}\text{Boy/Femboy/Crossdresser Mizuki (PJSK) believers.}}$
+- ${\color{#79bdc1}\text{Here \*only\* for drama and venting/complaining.}}$
+- ${\color{#79bdc1}\text{Block freely if I disagree with your views or may ignore you completely.}}$
 </details>
 
 
  <p><details>
   <summary>⚁ <b>ꜱʜᴏʀᴛᴇɴᴇᴅ ꜰᴀɴᴅᴏᴍꜱ/ᴄᴏᴍᴍᴜɴɪᴛɪᴇꜱ</b></summary>
   
-- Typology community
-- Bungou Stray Dogs
-- 8:11
-- The Mandela Catalogue
-- Madeleine Phantasms
-- Genshin Impact (tho after latests updates not sure anymore😹)
-- Honkai: Star Rail
-- Stardew Valley
-- Fight Club
-- Needy Streamer Overload
+- ${\color{#5a9f67}\text{Typology community}}$
+- ${\color{#5a9f67}\text{Bungou Stray Dogs}}$
+- ${\color{#5a9f67}\text{8:11}}$
+- ${\color{#63a78d}\text{The Mandela Catalogue}}$
+- ${\color{#63a78d}\text{Madeleine Phantasms}}$
+- ${\color{#63a78d}\text{Genshin Impact (tho after latests updates not sure anymore😹)}}$
+- ${\color{#63a78d}\text{Honkai: Star Rail}}$
+- ${\color{#79bdc1}\text{Stardew Valley}}$
+- ${\color{#79bdc1}\text{Fight Club}}$
+- ${\color{#79bdc1}\text{Needy Streamer Overload}}$
 </details>
+
+
+  <p><details>
+  <summary>⚂ <b>ᴀʀᴛ ᴄʀᴇᴅꜱ</b></summary>
   
+- ${\color{#5a9f67}\text{pfp made by @DaLgurll on Pinterest}}$
+- ${\color{#63a78d}\text{SO3 arts made by @useri6bvwtcsn3 on TikTok}}$
+- ${\color{#79bdc1}\text{video made by @fucckedcrps on TikTok}}$
 
    
+
+
 <p align="left">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31s75r6nftqroa6eh2bjua7p2fra&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
-  </a>
-</p>
+ <img src="https://files.catbox.moe/0bfqtz.gif" alt="D" width="400" height="200">
+</p>  ‎ ‎ ‎    
