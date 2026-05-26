@@ -60,10 +60,9 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
 - ${\color{#5a9f67}\text{pfp made by @DaLgurll on Pinterest}}$
 - ${\color{#63a78d}\text{SO3 arts made by @useri6bvwtcsn3 on TikTok}}$
 - ${\color{#79bdc1}\text{video made by @fucckedcrps on TikTok}}$
-
+</details>
    
 
 
-<p align="left">
- <img src="https://files.catbox.moe/0bfqtz.gif" alt="D" width="400" height="200">
-</p>  ‎ ‎ ‎    
+</p>
+ <img src="https://files.catbox.moe/0bfqtz.gif" alt="D" width="400" height="200">‎    
