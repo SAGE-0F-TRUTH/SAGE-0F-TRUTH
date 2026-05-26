@@ -1,5 +1,7 @@
 
- ‎ ‎ ‎ 
+ ‎ ‎ ‎ <p align="center">
+ <img src="https://i.postimg.cc/hGxYJKTv/IMG_0767.gif" alt="Demo of feature" width="300" height="10">
+</p>  ‎ ‎
   ‎ ‎ ‎ 
    ‎ ‎ ‎ 
 <p align="center">
@@ -14,7 +16,7 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
    ‎ ‎ ‎    ‎ ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎      ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎    ‎ ‎ ‎    ‎ ‎ ‎ [ʀ](https://rentry.co/-SO3)${\color{#5a9f67}\text{entry}}$   ‎ ‎ ‎ [ᴀ](https://bearerofheart.atabook.org/)${\color{#63a78d}\text{tabook}}$   ‎ ‎ ‎ [ᴛ](https://www.tumblr.com/sage-0f-truth)${\color{#79bdc1}\text{umblr}}$
 
 <p align="center">
- <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/c3vaxl.gif" alt="Demo of feature" width="300" height="10">
+ <img src="https://i.postimg.cc/hGxYJKTv/IMG_0767.gif" alt="Demo of feature" width="300" height="10">
 </p>  ‎ ‎ ‎    
 ‎
 
@@ -34,7 +36,7 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
 - ${\color{#5a9f67}\text{No flirting unless I allowed you to; no flirting if you're over 18 in any case.}}$
 - ${\color{#63a78d}\text{Boy/Femboy/Crossdresser Mizuki (PJSK) believers.}}$
 - ${\color{#79bdc1}\text{Here \*only\* for drama and venting/complaining.}}$
-- ${\color{#79bdc1}\text{Block freely if I disagree with your views or may ignore you completely.}}$
+- ${\color{#79bdc1}\text{I block freely if I disagree with your views or may ignore you completely.}}$
 </details>
 
 
