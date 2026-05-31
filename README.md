@@ -35,7 +35,8 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
 - ${\color{#5a9f67}\text{Basic}}$ - https://dont-interact-criteria.carrd.co/
 - ${\color{#5a9f67}\text{No flirting unless I allowed you to; no flirting if you're over 18 in any case.}}$
 - ${\color{#63a78d}\text{Boy/Femboy/Crossdresser Mizuki (PJSK) believers.}}$
-- ${\color{#79bdc1}\text{Here \*only\* for drama and venting/complaining.}}$
+- ${\color{#63a78d}\text{Here \*only\* for drama and venting/complaining.}}$
+- ${\color{#79bdc1}\text{\*Any\* kind of "jokes" about nazism. (Y'all REALLY weird and disgusting.)}}$
 - ${\color{#79bdc1}\text{I block freely if I disagree with your views or may ignore you completely.}}$
 </details>
 
