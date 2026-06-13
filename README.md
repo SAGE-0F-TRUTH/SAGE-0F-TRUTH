@@ -78,4 +78,4 @@ ${\color{#5a9f67}\text{C + H welcomed}}$   ‎ ‎ ‎ ${\color{#63a78d}\text{AF
 
 
 </p>
- <img src="https://files.catbox.moe/nxa6ry.gif" alt="D" width="400" height="200">‎    
+ <img src="https://files.catbox.moe/nxa6ry.gif" alt="e" width="400" height="200">‎ 
